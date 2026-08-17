@@ -1,0 +1,947 @@
+大发welcome彩票大厅下载 ✅信誉平台：【３３ＢＦ．ＶＩＰ】 ✅官网：【３６６ＢＦ．ＣＣ 】✅【大发welcome彩票大厅下载 】✅信誉平台：《﻿３６６ＢＦ．ＣＯＭ》✅官网：《３７ＢＦ．ＶＩＰ》✅
+
+来必发一路发🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥
+
+👉免费技巧，2 期必中： http://３７ＢＦ．ＶＩＰ  点击进入注册即可🔥
+
+👉免费技巧，2 期必中 ： http://３７ＢＦ．ＣＣ  点击进入注册即可🔥
+
+👉 免费技巧，2 期必中： http://３６６ＢＦ．ＣＣ  点击进入注册即可🔥
+
+🔥你还在靠感觉玩彩票吗？
+
+🚀 你还在一把赢、一把输里反复折磨吗？
+
+❓ 你是不是已经感觉——差一点就能翻身？别再骗自己了！你缺的不是运气，是一套真正可执行的“导师计划”！
+老师 已助上千人成功翻盘,欢迎沟通交流! 胜率98%,快.3要怎么玩？不管是玩家还是导师，刚刚开始接触的时候都有遇到这个问题，都是从不会到会，我就来说说我是怎么玩 的吧寇
+自己也是交不少学费的人，呕心沥血的经验分享给大家。如果你是刚刚玩，我来教教你，如果你已经玩很久了，却不稳，我来拉拉你，如果你已经遍体鳞伤，我来帮帮你！
+
+我是这么认为的：心态只能让咱们如虎添翼，可是并不能给咱们雪中送炭，一个玩家光有心态，必定赚不到钱，只不过良好的心态可能让你亏本的少，
+可是你也会在亏，由于心态底子解决不了概率问题，概率问题是只有技能才能解决的。
+
+举个例子，一个玩家假如技能足够好，那么他挂的可能性就比较小，一个玩家之所以心态不好，许多时分是由于连挂，所以技能假如足够好，许多时分能够弥补咱们心态的一些缺点。 
+所以技能远远要比心态重要的多，由于技能是底子，心态仅仅一些润滑剂，两者缺一不可。
+
+稳赚方法技巧是有的，技巧也挺多的，首尾相加法，暗长龙走势，去一尾等许多技巧规则方法。都是需要活学活用的，许多都是书面写不出来的。但我在这里说的稳赚是最少以一个星期为单位，短期暴利模式网上一搜一大堆，但都拼不过变态期，一把回到解放前很多人都经历过，快三方式很多接近稳赚，我告诉自己是稳赚，
+但我不敢这么跟大家说，因为没有什么事情是绝对的，何况堵搏。为什么我说很多方法都可行呢？因为我不是叫你从早上九点到晚上12点都玩，那什么方法都是会回到解放前的。抓住重要，几把就可以收工了，用得着这么麻烦吗？
+而且庄家最怕你什么？不怕你赢，就怕你赢了不玩。
+
+AI Builders Digest 今日热点快报细腰茄 DYQPM 形态别致
+<img src="https://sun9-75.vkuserphoto.ru/s/v1/ig2/DziOYRZCggPDFoMhoTzwk74x93CcDZaRdXGe17h5P1cLLEiEuComDwerOoQIVaaESGMBe7I1N_xLZy0WgmAPsqcb.jpg?quality=95&as=32x21,48x32,72x48,108x72,160x106,240x159,360x238,480x318,540x358,640x424,720x477,1080x715,1280x848&from=bu&cs=1280x0" />
+
+⭐很多人最大的问题：
+
+❌不是不会看，而是没有“规则”！
+
+🔹今天看这个方法，明天换那个思路
+
+🔹一输就乱，一赢就飘
+
+🔹没有节奏，全靠情绪
+
+❌ 控制不住手
+
+❌控制不住心
+
+❌ 控制不住节奏
+
+📉 连错就加，越加越错
+
+📈 一赢就冲，最后回吐
+
+结果只有一个：反反复复，始终原地打转！
+其实90%的人，不是输给概率，是输给自己！
+
+✅真正做得稳的人，都有这3个核心：
+
+✔️ 有方法（不是乱猜，是有逻辑）
+
+✔️有节奏（不是乱下，是有计划）
+
+✔️ 有控制（不是情绪，是有边界）
+
+而这一切，靠你一个人，很难短时间建立！
+
+🎯这就是为什么——你需要导师计划！
+不是喊单！不是忽悠！而是一步一步带你建立自己的体系！
+
+📚导师计划到底在做什么？
+
+📌 帮你理解基本思路（冷热、连号、节奏判断）
+
+📌 帮你制定适合你的参与方式（资金规划，技巧规律分析）
+
+📌帮你纠正最致命的问题——情绪操作！
+
+【大发welcome彩票大厅下载 】信誉平台： http://３３６６ＢＦ．ＶＩＰ 点击进入注册即可  官网： http://３７ＢＦ．ＶＩＰ  点击进入注册即可网址复制浏览器输入打开点击平台首页【微聊好友】导师一对一免费技巧教学
+
+<img src="https://sun9-21.vkuserphoto.ru/impg/Ug81ls20O6MVnR2nc8l4StbF98LiUgj3_XlVBQ/LBt6Ls2sEiw.jpg?size=2560x1438&quality=95&sign=13f3ebc1f0ba099074545cccb545612c&type=album" />
+
+🌟任何一个领域——
+
+🏋️健身、投资、学习
+
+💡投资有没有人带，差距大不大？
+
+🌟答案很现实：非常大！
+
+👣自己摸索 = 慢 + 容易走偏
+
+🤝有人带 = 快 + 少踩坑
+
+古之学者必有师。师者，所以传道受业解惑也。人非生而知之者，孰能无惑？惑而不从师，其为惑也，终不解矣。闻道有先后，术业有专攻，如是而已。
+人生总是充满着诸多的机遇和选择，你选择我我必不让你失望，你选择不信我，我也祝愿你能赢得更多，事实莫过于雄辩，实力才是硬道理，
+每个人都在努力的通过各种渠道让自己的生活变得更加美好，无论是玩什么都一样，也许有时候我们会感觉到很累，也许我们有时候得不到更多的理解，
+但是我相信总有一些人会理解我们的，欢迎大家一起交流了解，一起努力，共同迈向致富的捷径，一块享受成功的喜悦。
+
+【大发welcome彩票大厅下载 】信誉平台： http://３６６ＢＦ．ＶＩＰ  点击进入注册即可  官网： http://３７ＢＦ．ＣＣ  点击进入注册即可 网址复制浏览器输入打开点击平台首页【微聊好友】导师一对一免费技巧教学
+以下为常见走势概率统计分析：
+
+《1》.跳跳龙：跳跳龙走势规律公式是我们比较常见的一种公式之一它分为很多种形式出现接下来我给大家一一介绍下
+
+《2》.清一色长龙走势规律公式：这种长龙使我们最常见的也是很多玩家最喜欢跟最讨厌的走势。它长可长大20局之久， 
+
+　　短也能短至四五六局。一般这种我建议顺龙，顺到死为止。尽量不要取反。很多玩家都是因为反龙反上头导致心态崩溃掉 ，最终一直走上高倍，输的血本无归。 
+
+《3》.对子走势规律公式：这种公式可以说是反龙跟顺龙的一种技巧。在出现长龙的时候如果遇到本局开对子那么我们可 以在接下来的一局压相反号。
+这种公式对龙的实用性是相对挺高的.但是这边我还是建议大家如果遇到清一色龙的时候尽 量不要运用，还是希望大家能先顺等足够长的时候在选择考虑运用。也许很多玩家会问为什么呢？小人不才只能说实战中血的教训。 
+
+《4》.极大压极小，极小压极大。这可以说是最实用的一种技巧之一。在和值达到最高点跟最低点或接近的时候这是最容 易变号的一个警钟。是一个极端。 
+
+
+1.三个筛子前一期2x-iy+6=0的法向量为(3,*,6) 
+
+　　设所求中奖号的法向量为(a,b,c) 
+
+　　因为三个筛子最高点数（和值18）、最小点数(和值3)，所以三个筛子和值的交集（3到18） 
+
+　　即(3,*,18)(a,b,c)=2a-b+6c=和值 
+
+　　所以所求和值点数法向量为(a,2a+6c,c) 
+
+　　由方程3x+4y+2z+6=0和x+3iy+z-2=0确立的走势图 
+
+　　x=t;iy=0.5t+5;z=-2.5t-13 
+
+　　得出其中两个点数为(3或者4)，(5或者,2)，(点数可以重复的，所以要根据上期和值寻找变量) 
+
+　　所以如由(3,6,6)和法线得出所求晒面的方程为 
+
+　　ax+(2a+6c)(iy-5)+c(z+13)=0 
+
+　　代入(-6,2,2)，得-6a+3(2a+6c)+15c=0 
+
+　　化简得：c=和值 
+
+　　所以方程化为ax+2a(iy-5)=和值-走势时时在变，变量也要变化的，才能质变和值
+
+2.每抽一次有6种可能,抽了3次后总的可能性为6*6*6=216（其中有重复的数）
+
+　　比如豹子有：111、222、333、444、555、666共六种.所以豹子的概率为6/216=1/36
+
+　　全双、三单就换个思路：每次抽出偶数（奇数）概率为1/2.所以概率为1/2*2*2=1/8
+
+　　2奇1偶：偶数可能在第一个、第二个、第三个出现.所以概率为（1/2*1/2*1/2）*3=3/8(要把顺序对概率的影响给补上,所以要乘以3)
+
+　　大概就是这么算的,还是要自己慢慢理会
+
+<img src="https://sun9-75.vkuserphoto.ru/s/v1/ig2/DziOYRZCggPDFoMhoTzwk74x93CcDZaRdXGe17h5P1cLLEiEuComDwerOoQIVaaESGMBe7I1N_xLZy0WgmAPsqcb.jpg?quality=95&as=32x21,48x32,72x48,108x72,160x106,240x159,360x238,480x318,540x358,640x424,720x477,1080x715,1280x848&from=bu&cs=1280x0" />
+
+
+AI 算力中心建设持续推进，高性能服务器采购需求稳步增长。 ｜来源：
+
+国产 GPU 芯片生态完善，多行业应用适配持续加快。 ｜来源：
+
+智能驾驶算法持续优化，车载 AI 芯片需求保持增长。 ｜来源：
+
+数据中心液冷方案普及，节能降耗推动行业升级。 ｜来源：
+
+云计算基础设施扩容，企业数字化需求持续释放。 ｜来源：
+
+高性能存储产品升级，AI 训练带动市场需求增长。 ｜来源：
+
+智能机器人视觉系统迭代，工业自动化应用加速。 ｜来源：
+
+国产数据库持续优化，信创产业建设稳步推进。 ｜来源：
+
+AI 大模型推理效率提升，企业级应用不断拓展。 ｜来源：
+
+工业互联网平台升级，制造业数字化转型持续推进。 ｜来源：
+
+智慧城市建设提速，数字基础设施持续完善。 ｜来源：
+
+边缘计算设备需求增长，智能终端应用不断丰富。 ｜来源：
+
+AI 智能客服升级，企业服务效率进一步提升。 ｜来源：
+
+国产服务器市场回暖，政企采购需求稳步增长。 ｜来源：
+
+高速光模块需求提升，算力网络建设持续推进。 ｜来源：
+
+AI 图像识别技术升级，智能安防应用持续拓展。 ｜来源：
+
+半导体设备国产化进程加快，产业链自主能力增强。 ｜来源：
+
+Chiplet 封装技术发展提速，高性能芯片应用扩大。 ｜来源：
+
+智能制造项目落地增多，工业机器人需求持续增长。 ｜来源：
+
+工业软件国产替代推进，企业数字化升级加速。 ｜来源：
+
+新能源汽车智能座舱升级，车载显示需求增长。 ｜来源：
+
+车规级 MCU 市场回暖，汽车电子景气度提升。 ｜来源：
+
+智能网联汽车发展提速，车路协同建设持续推进。 ｜来源：
+
+新型储能项目建设加快，电力系统调节能力提升。 ｜来源：
+
+光伏逆变器需求增长，新能源装机持续扩容。 ｜来源：
+
+风电设备更新升级，海上风电建设稳步推进。 ｜来源：
+
+储能电池技术优化，系统安全性能持续提升。 ｜来源：
+
+充电基础设施持续完善，新能源汽车配套能力增强。 ｜来源：
+
+智能电网建设推进，配电自动化水平不断提高。 ｜来源：
+
+虚拟电厂应用拓展，能源管理智能化水平提升。 ｜来源：
+
+AI 医疗辅助诊断升级，智慧医疗建设持续推进。 ｜来源：
+
+医疗影像智能分析优化，基层医疗效率进一步提升。 ｜来源：
+
+可穿戴健康设备升级，健康监测功能持续完善。 ｜来源：
+
+生物医药数字化研发提速，AI 技术赋能创新药开发。 ｜来源：
+
+智慧养老平台建设加快，数字健康服务持续完善。 ｜来源：
+
+智能教育平台升级，个性化学习应用不断拓展。 ｜来源：
+
+AI 办公工具普及，企业协同效率持续提升。 ｜来源：
+
+企业知识库智能化建设提速，办公数字化水平提高。 ｜来源：
+
+智能会议系统升级，远程协作体验进一步优化。 ｜来源：
+
+AI 文档生成应用普及，内容创作效率持续提升。 ｜来源：
+
+电商智能推荐优化，平台运营效率不断提高。 ｜来源：
+
+智能供应链系统升级，仓储物流效率持续改善。 ｜来源：
+
+无人仓储设备需求增长，物流自动化水平提升。 ｜来源：
+
+智能配送技术优化，末端物流效率进一步提高。 ｜来源：
+
+跨境电商数字化升级，海外市场拓展持续推进。 ｜来源：
+
+数字支付场景持续丰富，移动支付便利性不断提升。 ｜来源：
+
+AI 风控系统升级，金融机构风险管理能力增强。 ｜来源：
+
+智能投顾服务优化，财富管理数字化持续推进。 ｜来源：
+
+数字金融创新发展，普惠金融覆盖范围进一步扩大。 ｜来源：
+
+银行业智能审批升级，小微企业融资效率提升。 ｜来源：
+
+智能语音交互技术升级，人机交互体验持续优化。 ｜来源：
+
+AI 翻译系统优化，多语言交流效率进一步提升。 ｜来源：
+
+智能搜索技术迭代，信息获取效率不断提高。 ｜来源：
+
+AI 视频生成能力提升，内容制作门槛持续降低。 ｜来源：
+
+数字人直播应用拓展，企业营销方式持续创新。 ｜来源：
+
+AI 音乐创作工具升级，创作者生产效率提升。 ｜来源：
+
+短视频智能剪辑优化，内容制作效率持续提高。 ｜来源：
+
+智能广告投放系统升级，营销精准度进一步提升。 ｜来源：
+
+VR 内容生态完善，沉浸式应用场景不断拓展。 ｜来源：
+
+AR 技术应用扩大，工业与消费领域融合加快。 ｜来源：
+
+智能穿戴市场持续增长，消费电子需求逐步回暖。 ｜来源：
+
+折叠屏产业链成熟，终端产品创新持续推进。 ｜来源：
+
+高端显示面板需求增长，新型显示技术持续升级。 ｜来源：
+
+Mini LED 产品渗透率提升，显示产业持续发展。 ｜来源：
+
+OLED 面板应用扩大，高端终端市场需求增长。 ｜来源：
+
+智能音频设备升级，空间音频体验持续优化。 ｜来源：
+
+无线连接技术升级，多终端协同能力不断增强。 ｜来源：
+
+智能家居生态完善，全屋互联体验持续优化。 ｜来源：
+
+家庭安防智能化升级，智慧社区建设持续推进。 ｜来源：
+
+智能门锁市场保持增长，家庭安全需求持续释放。 ｜来源：
+
+智能照明系统升级，节能控制方案持续推广。 ｜来源：
+
+智能家电功能丰富，AI 场景应用不断拓展。 ｜来源：
+
+工业传感器需求增长，智能制造应用持续深化。 ｜来源：
+
+高精度定位技术升级，车联网应用持续拓展。 ｜来源：
+
+北斗产业应用扩大，智慧交通建设持续推进。 ｜来源：
+
+无人机应用场景丰富，低空经济持续发展。 ｜来源：
+
+智能巡检机器人推广，能源行业数字化升级。 ｜来源：
+
+智能矿山建设推进，无人化作业水平持续提升。 ｜来源：
+
+智慧港口建设加快，物流运输效率不断提高。 ｜来源：
+
+智能轨道交通升级，运营管理能力持续增强。 ｜来源：
+
+高端数控机床需求增长，制造业升级持续推进。 ｜来源：
+
+精密制造技术优化，高端装备产业稳步发展。 ｜来源：
+
+新材料研发持续推进，产业创新能力不断增强。 ｜来源：
+
+碳中和技术应用扩大，绿色低碳产业稳步发展。 ｜来源：
+
+氢能产业链持续完善，多元能源布局不断推进。 ｜来源：
+
+光储充一体化项目增加，新能源协同发展提速。 ｜来源：
+
+工业节能设备升级，绿色制造持续推进。 ｜来源：
+
+循环经济项目落地增多，资源综合利用水平提升。 ｜来源：
+
+智慧农业平台建设加快，农业数字化持续推进。 ｜来源：
+
+农业无人机应用扩大，现代农业效率持续提升。 ｜来源：
+
+智能灌溉系统推广，农业节水水平进一步提高。 ｜来源：
+
+农产品溯源体系完善，食品安全保障能力增强。 ｜来源：
+
+冷链物流建设提速，生鲜运输效率持续改善。 ｜来源：
+
+智慧文旅项目增加，数字化旅游体验不断优化。 ｜来源：
+
+智能停车系统升级，城市交通管理效率提升。 ｜来源：
+
+智慧社区服务完善，便民数字化应用持续拓展。 ｜来源：
+
+城市数字治理平台升级，公共服务能力持续增强。 ｜来源：
+
+AI 数据治理能力提升，企业数据价值进一步释放。 ｜来源：
+
+算力网络协同发展，跨区域资源调度能力持续优化。 ｜来源：
+
+人工智能产业应用深化，多行业数字化转型步伐加快。 ｜来源：
+
+国产 AI 芯片性能持续提升，企业级算力需求稳步释放。 ｜来源：
+
+智能算力集群建设提速，区域数字经济发展动能增强。 ｜来源：
+
+企业私有化大模型部署升温，行业智能化转型加快。 ｜来源：
+
+AI 推理芯片应用拓展，边缘计算市场持续增长。 ｜来源：
+
+高速互连芯片需求增加，数据中心通信能力持续提升。 ｜来源：
+
+AI 编程工具持续优化，软件开发效率进一步提升。 ｜来源：
+
+智能代码生成平台升级，开发者生态不断完善。 ｜来源：
+
+国产 CPU 持续迭代，信创市场应用进一步扩大。 ｜来源：
+
+AI 算法平台升级，多行业模型训练效率持续优化。 ｜来源：
+
+高性能交换机需求增长，算力网络建设持续推进。 ｜来源：
+
+工业 AI 质检系统升级，产品检测效率进一步提高。 ｜来源：
+
+智能制造执行系统优化，工厂生产管理更加高效。 ｜来源：
+
+数字工厂建设持续推进，制造业智能升级不断深化。 ｜来源：
+
+AI 预测性维护技术普及，设备运维成本持续下降。 ｜来源：
+
+工业视觉识别能力提升，自动化检测精度进一步提高。 ｜来源：
+
+智能焊接机器人升级，高端制造应用持续拓展。 ｜来源：
+
+智能搬运机器人需求增长，物流自动化水平不断提高。 ｜来源：
+
+工业控制系统国产化加快，自主可控能力持续增强。 ｜来源：
+
+工业互联网安全体系完善，企业数字化保障能力提升。 ｜来源：
+
+数字孪生工厂应用扩大，生产过程可视化水平不断提高。 ｜来源：
+
+智能汽车座舱体验升级，多屏交互功能持续优化。 ｜来源：
+
+车载语音助手能力增强，智能交互体验不断改善。 ｜来源：
+
+自动泊车系统持续优化，智能驾驶便利性进一步提升。 ｜来源：
+
+新能源汽车电子电气架构持续升级，整车智能化水平提升。 ｜来源：
+
+智能底盘控制技术优化，车辆操控性能进一步增强。 ｜来源：
+
+车规级功率半导体需求增长，新能源汽车产业持续发展。 ｜来源：
+
+智能充电管理系统升级，充电效率进一步优化。 ｜来源：
+
+电池管理系统持续迭代，新能源汽车续航表现提升。 ｜来源：
+
+固态电池研发持续推进，新型储能技术不断突破。 ｜来源：
+
+钠离子电池应用拓展，多元储能路线持续丰富。 ｜来源：
+
+新能源储能电站建设提速，电网调节能力进一步增强。 ｜来源：
+
+储能系统智能管理升级，运行效率持续提升。 ｜来源：
+
+光伏电站智能运维普及，发电效率进一步提高。 ｜来源：
+
+分布式能源建设持续推进，绿色能源利用水平提升。 ｜来源：
+
+智能微电网应用扩大，区域能源管理更加灵活。 ｜来源：
+
+风电智能运维系统升级，设备运行稳定性持续提高。 ｜来源：
+
+新型电力系统建设加快，能源数字化水平不断提升。 ｜来源：
+
+电网数字监测平台升级，供电可靠性进一步增强。 ｜来源：
+
+AI 辅助药物研发持续推进，新药筛选效率不断提升。 ｜来源：
+
+医疗大数据平台建设加快，精准医疗应用持续拓展。 ｜来源：
+
+智能病理分析技术优化，辅助诊断效率进一步提高。 ｜来源：
+
+医疗机器人应用扩大，微创手术辅助能力持续增强。 ｜来源：
+
+远程医疗平台持续升级，优质医疗资源共享不断推进。 ｜来源：
+
+AI 健康管理平台普及，慢病管理服务持续优化。 ｜来源：
+
+医疗信息化建设提速，医院数字管理能力不断增强。 ｜来源：
+
+智能护理设备升级，康复医疗服务持续完善。 ｜来源：
+
+可穿戴健康终端功能丰富，个人健康管理更加便捷。 ｜来源：
+
+医疗影像云平台建设持续推进，数据共享能力不断提升。 ｜来源：
+
+智能教育终端升级，数字课堂体验持续优化。 ｜来源：
+https://github.com/rainskojc/jdrhlp/blob/main/2026%E7%AC%AC%E4%B8%80%E5%BF%AB%E8%AE%AF%3A%E5%90%AF%E8%88%AA%E5%BD%A9welcome%E8%B4%AD%E5%BD%A9%E5%85%85%E5%80%BC-%E6%9C%AC%E5%9C%B0%E8%B4%A2%E7%BB%8F.md
+https://github.com/anagrewlogis/dffejg/commit/52903451c846ba6dc1312ecc577b5ffb79baa5ee
+https://github.com/anagrewlogis/dffejg/blob/main/2026%E6%AF%8F%E5%91%A8%E7%83%AD%E8%AF%BB%EF%BC%9A%E5%90%AF%E8%88%AA%E5%BD%A9welcome%E5%BD%A9%E7%A5%A8%E6%B4%BB%E5%8A%A8-%E8%B4%A2%E7%BB%8F%E6%8C%87%E5%8D%97.md
+https://github.com/taphenihs/ydcyug/commit/5e4daf29925f90074074ea92725df48d3c484768
+https://github.com/taphenihs/ydcyug/blob/main/2026%E5%AE%98%E6%96%B9%E7%83%AD%E8%AE%AF%EF%BC%9A%E5%90%AF%E8%88%AA%E5%BD%A9welcome%E5%BD%A9%E7%A5%A8%E7%A6%8F%E5%88%A9-%E9%98%BF%E8%81%94%E8%B4%A2%E7%BB%8F.md
+https://github.com/ciderullettigo/czfipo/commit/ade6a9eb932f299cb753c0e124f0bc30f9f6a8b9
+https://github.com/sebiageow/cessxw/commit/cf9756064f244bc7394dfac95b86d7894bb09628
+https://github.com/eseolniewserr/iiyfgu/commit/9cc71f7e15e6433e212fd3b9e7198ec8c1efe6bf
+https://github.com/ismaclas/tvsafx/commit/5a59e114d0bfa5043a62cca90ecf6d72320564cc
+https://github.com/centister/udiioi/commit/6f45fa3ce08010b35d35d34a66981c1ade226a22
+https://github.com/aktidocynescreat/khehlm/commit/3db7b0e75ed6f79c88ffa85561a24870f3ce9965
+https://github.com/mognhro/fkpfuu/commit/c54edf66f4db6f479bc68a0d525da27cdd6d4bb7
+https://github.com/minucn160/yeadaf/commit/d6cd398f27c81a0a862385aedad0fdd21ccf890b
+https://github.com/shake37otectc/hekyxz/commit/80eb53d043aac1520f42c87d95bdd5ac549c81ee
+https://github.com/scarteriundius/iwhmdu/commit/c017959a77e7ca87d93385c7e9a32f0ab01199eb
+https://github.com/tighx/dcsife/commit/22e4ff140dbdac96d3fb6afc378ed1e58cdcabac
+https://github.com/oot-f1e1094/bzobag/commit/db83d05d37c0e0e2b6d2a71eedc5064b21ca00df
+https://github.com/arcelotiz/tomptq/commit/18bfa0c842cb14f2bee6469cc19d2ad4e285f513
+https://github.com/cvirozhangys/egcrit/commit/2f8de4c6d0a6495fbbf25b1fbe5deed386336086
+https://github.com/utylan/oxpoht/commit/72c9cde7544312ccb2041a0f13acb0000bf5ddf9
+https://github.com/janshaniv/lvbtyn/commit/904a0c897d7b860c2b133606f8129d857324d1f3
+https://github.com/jainuniur/qhpotm/commit/48055f4ef072b21b41212260d786ef9483d4cb55
+https://github.com/kaopham/uhcbng/commit/90b0996d70439b92e6277f8b05a60ab9e80f3f62
+https://github.com/anira2j/cwqpbb/commit/c46efd6b7271db96ec61de7a855206d22228be70
+https://github.com/apvishku/lhvoad/commit/407b3c3d77d0ae3215924f3f9f26efec93077226
+https://github.com/alxilu/vqumpa/commit/a85fde1f2dd1c1d9aba5d03d2b19655fd666c5bc
+https://github.com/lattlerjdusau/xkkdbt/commit/0dfb7ad5c9171a0255c5d7e37188720eb9b1a44e
+https://github.com/jawabing/lhiaml/commit/d7dc5fd1e930a8b81e72df06b810e165896b258a
+https://github.com/isteft3wqnxhn/mchcam/commit/c31c4d55119f6520fc9ba141461f7b451582c54d
+https://github.com/servicolvydd/oiueee/commit/882ba9b682ae3888b4c0fd6dd990c4b02ad1078e
+https://github.com/pysainez/uxmvtf/commit/8496b0ad051b8bdd4f179b605ed7c48c7d86f960
+https://github.com/tramenhatwordbul/imgcgi/commit/74f36c381a040a1e155338eec5b9bbb537535539
+https://github.com/randangle/epkixi/commit/25b5c54b13000873c9e36ea964e627f971c241c6
+https://github.com/uziye7pider/kfuunz/commit/1a198486c7a391a9569308d32efcf0bb6a0cddde
+https://github.com/glagaroc/ymebhn/commit/8b391e9e1b1df3c88bd30345f060fdaf68741bb3
+https://github.com/mkogz13/wnlyjx/commit/a8e7982bc96c98427a8d14601a2d0fb51c5e3d04
+https://github.com/scark4horen/jhimwp/commit/142c5ed280dff03f42e4d1be6260737e3576cc3b
+https://github.com/ldawalhy/mexfav/commit/cb0e037bc5d99ec113cb995b4da3aadc87f49514
+https://github.com/goldifiy/heynvc/commit/2c5394b8f426a501b84072dc4f16698b50c61a7f
+https://github.com/zerian879/sfotts/commit/0dfa2912ccc2233f4f6d40ef9185776e21111716
+https://github.com/dan-brarilley/rzaxdc/commit/6d1a8fe7b744a293390439a173a6dd34ca51bb76
+https://github.com/innyancesco/cgausv/commit/febc6e8c310ece4caef61267030881443120c6a8
+https://github.com/abeddle/vyniqs/commit/9a84107c42faee6ed460f56f3872637e42bcdca3
+https://github.com/tmurklyon/ixrafn/commit/b98e6b40eef2004d4989ca8aa715c73b9df84c90
+https://github.com/rainskojc/jdrhlp/commit/f19948d71a329d9a374648f388314ef2b4867efc
+https://github.com/centister/udiioi/commit/25d129fe60c6f4cac0f2682b1037d3d5727e89b3
+https://github.com/aarasticage/pscugd/commit/2137be0f7f6478e6e4d21ff23686a866df6d8146
+https://github.com/damennystall92/awviup/commit/933f77fcafa1263dedc1c45282e2697e02484d4b
+https://github.com/tullercatal/qolllh/commit/dd593c035fba6d0a2eb9a809529478a98dcea3ee
+https://github.com/sebiageow/cessxw/commit/51fcfa6f7bcf30de39af6fbbd0597d8285f545ab
+https://github.com/hojimoyli/dymclx/commit/2dd2cbaab107d005877f492aeefbd1896919006e
+https://github.com/anagrewlogis/dffejg/commit/fe2db136d9189eca8497bd2aa94d6852c2241d7b
+https://github.com/syleviciocysuux/qngite/commit/52b00d85a9ca8c54fd75971c47dc37aa7bf2ae97
+https://github.com/greensulbert/ytsolr/commit/dbe218f1a58aa6e17c0a43560b422eecf74baa35
+https://github.com/ciderullettigo/czfipo/commit/007f421121ec9a719762addad2b34f7a2badc944
+https://github.com/3cloud57/hdjfbf/commit/61635a2a34ae7bd19c10872a6c7829af5d884210
+https://github.com/aktidocynescreat/khehlm/commit/b2e6935c2c9ebce04b5c4cefb4a6f84b07873f31
+https://github.com/oot-f1e1094/bzobag/commit/102a066b6be2c5283a9f070d89f355257b145283
+https://github.com/rodisad/ercfrc/commit/bdf84417bd4d242391446583e3edfb46bcbe9222
+https://github.com/minucn160/yeadaf/commit/45ba3a522cfc1b778f5fbce696ea7b04b742d3c6
+https://github.com/taphenihs/ydcyug/commit/7c1e5f3972a9ada50f99d067ea539ea24c09a66c
+https://github.com/scarteriundius/iwhmdu/commit/fc2b204c0992cfcd864a0cafcf2de84201f139f4
+https://github.com/shake37otectc/hekyxz/commit/01614359ee7e96331f39fb05bf18336e90271e8c
+https://github.com/mognhro/fkpfuu/commit/9960cd8b612bea0df794b104cb71b06e50d01587
+https://github.com/kaopham/uhcbng/commit/aa210001b60e7ab321ec995988a335cca75a3dde
+https://github.com/tramenhatwordbul/imgcgi/commit/d8f18fe9ac6d449690fb934f6fd89d9950e56551
+https://github.com/jainuniur/qhpotm/commit/f6488351f15c75a0bbe5953df4a0fd69d2feabf4
+https://github.com/ismaclas/tvsafx/commit/23676f62f202b008c23b5609563fbab16ea34a50
+https://github.com/utylan/oxpoht/commit/9ff34d18617d0ba69baf25cb5d55ffb2e5e7ebfb
+https://github.com/pysainez/uxmvtf/commit/80c1def927df26204641fdb3976d79281699eac7
+https://github.com/tighx/dcsife/commit/b70284fa51e1c8e20dae0643c4185febc36c2ff0
+https://github.com/eseolniewserr/iiyfgu/commit/085ab788fdff7a13121c73deef75c4261a3e7893
+https://github.com/isteft3wqnxhn/mchcam/commit/665c37f5345c26dd09f6e3707a591c3a0bf8f25f
+https://github.com/arcelotiz/tomptq/commit/0991695e6c3fbb46e7edc002464ffe32648825aa
+https://github.com/jawabing/lhiaml/commit/6269673025e362fad1d7c526ec8747bdca172a47
+https://github.com/goldifiy/heynvc/commit/130c0532b78819ec3e79d43f13a6991ef5c67225
+https://github.com/janshaniv/lvbtyn/commit/b41b4cd9cb78ca38d0a1e78ef5d62c5afce2448c
+https://github.com/servicolvydd/oiueee/commit/b693f1465f3015d487eb5e9940c9fccd121ae69a
+https://github.com/mkogz13/wnlyjx/commit/ebd60594df19ce22a0931bae3044c1ed98edb66e
+https://github.com/randangle/epkixi/commit/3085d4db57999d0bd44ec607126c164bcd1ac3ca
+https://github.com/anira2j/cwqpbb/commit/75b65546a8ad3b0be8bd621cb8adb6660572561d
+https://github.com/scark4horen/jhimwp/commit/91e944fc6b2f554ca132c582f01279b8c2d77475
+https://github.com/apvishku/lhvoad/commit/8df9c27ab1c592d8c6de8741eb24fa3f2c124df5
+https://github.com/cvirozhangys/egcrit/commit/8de16b27567252b8ec87a508e77076f926a64a16
+https://github.com/centister/udiioi/commit/87d552449cfc63efa943fdbd47f1a7e19427bf97
+https://github.com/glagaroc/ymebhn/commit/e6e1187b4a23afb1845726ecac6dede79fdc7b2e
+https://github.com/rainskojc/jdrhlp/commit/cd5f66c1f0facc8e06d46b330ddbda05a69131fe
+https://github.com/zerian879/sfotts/commit/45ff73a5983bc4848d2c183ee3090fcda9d2639e
+https://github.com/innyancesco/cgausv/commit/c2ad63c00cc07dea931d3742a1ae64c44ba5485e
+https://github.com/uziye7pider/kfuunz/commit/6c223b6be7162c220ddd2ddf5b65b8aad882d4c2
+https://github.com/syleviciocysuux/qngite/commit/4e576dd785f988cdaa3629648895d0d0a0c1bde8
+https://github.com/ldawalhy/mexfav/commit/d865d2e23224649fdc39992492fc3f4091cf3ea6
+https://github.com/hojimoyli/dymclx/commit/07b93abedaf369931b8479486bf1b7c6983e79c6
+https://github.com/dan-brarilley/rzaxdc/commit/92317f770b58b94bc3f8747f82b88378833fe9dd
+https://github.com/ciderullettigo/czfipo/commit/6e98e1518c557911cff22f2407eaafc6cc7128d7
+https://github.com/anagrewlogis/dffejg/commit/a834ca3a6678ea834e49ad3298976cac938b4e95
+https://github.com/aarasticage/pscugd/commit/f3f454bb9149df3d26d5cbfb8ae9442e4e070c44
+https://github.com/tullercatal/qolllh/commit/8e65c1bbea8b8a223e4e7a2aad46151c3bda15ea
+https://github.com/tmurklyon/ixrafn/commit/b8182866dfa7a800896ddf93776f300a7a98e816
+https://github.com/kaopham/uhcbng/commit/e8d8359f916bc7249dcc75d9df8b267bc67b7305
+https://github.com/greensulbert/ytsolr/commit/a2739d3c66b7bbe12d29b3b6340d7e34cc892e49
+https://github.com/minucn160/yeadaf/commit/ab52c85c076f758a499d5675328c1c551672e8c1
+https://github.com/rodisad/ercfrc/commit/d713d8bff9e25ac8e0fb6c984af0adf6e539afc4
+https://github.com/aktidocynescreat/khehlm/commit/1d333cdd9fe406d825ee00e72d940f2bc77d486e
+https://github.com/scarteriundius/iwhmdu/commit/2e5802fdc99b7059820a031db6f6859c173a8375
+https://github.com/alxilu/vqumpa/commit/aae220b42df5afab87f091f683c1ffbf9ade43c6
+https://github.com/taphenihs/ydcyug/commit/685608bdc57de7924fb9809c5ec4102dd30c87a8
+https://github.com/lattlerjdusau/xkkdbt/commit/b9a53bb81d02c69739dc6d45d1ace3f8bc4ac0e0
+https://github.com/tramenhatwordbul/imgcgi/commit/5afefeaa6fd69b7460c34fa76c9c82c6f6b83bb1
+https://github.com/oot-f1e1094/bzobag/commit/db68345b3b3df1afd4b0308a492a4ad13d1740b5
+https://github.com/shake37otectc/hekyxz/commit/c267e1885bfca1608a1281922ca0e04501a4951d
+https://github.com/sebiageow/cessxw/commit/eb73c16f708b1073444b156f55d96efcebe83bc1
+https://github.com/eseolniewserr/iiyfgu/commit/7942ac336d52f42e0192986cb758b95e11216760
+https://github.com/utylan/oxpoht/commit/3d209e6b10f360d106bf940b497ee9f770675253
+https://github.com/abeddle/vyniqs/commit/4b0e87351bffd8af66b2d4adf27d0a0979c68cc5
+https://github.com/3cloud57/hdjfbf/commit/ec790185da9f39b821cf9a00ad42e83697ff8e9d
+https://github.com/goldifiy/heynvc/commit/f12b305011fe3e4f4d48c3d1c0029464746754f4
+https://github.com/servicolvydd/oiueee/commit/1f0bee3600826279b5d9510c2205b051ace44d2e
+https://github.com/jawabing/lhiaml/commit/cd1537ff4a7a9f9b308b31201f8a5fc445578fab
+https://github.com/damennystall92/awviup/commit/60b4d5ed89b951502868b164a652ec8f7875c4b8
+https://github.com/anira2j/cwqpbb/commit/164b8272970072c95028ecde1ff669d3090e7039
+https://github.com/mognhro/fkpfuu/commit/c2687d41e0349ff3622c8017d6d27c078b4090f9
+https://github.com/glagaroc/ymebhn/commit/60f18c11ab04bee2f47d5682433518a212f79f24
+https://github.com/mkogz13/wnlyjx/commit/cbf14652b0404d90ec6f1bc5d963542ee6cf4302
+https://github.com/jainuniur/qhpotm/commit/31a5c4d616d466e89cf446f503ffe90929bb5395
+https://github.com/pysainez/uxmvtf/commit/3a16ed981dbf2d0c561d7f6d105213aae13551d2
+https://github.com/cvirozhangys/egcrit/commit/a77e35364c36aab736da88b863cad7049870b0f0
+https://github.com/janshaniv/lvbtyn/commit/4952580c525f617508ee2120d325adcfb59fe7f0
+https://github.com/arcelotiz/tomptq/commit/0835a039dc1993359242ca9ef6f3548203f493b9
+https://github.com/syleviciocysuux/qngite/commit/e023d819a6225bdbcc730fba09fcc1a04c54ee58
+https://github.com/centister/udiioi/commit/aad3305dbbec444683987ffab66a8d380e3f7114
+https://github.com/ismaclas/tvsafx/commit/e095ad18e8dbd60cd1a87974cd67ad5d319556a5
+https://github.com/ciderullettigo/czfipo/commit/08aefbaaacb4b04a411d5beb4563e4605bb2ffcc
+https://github.com/randangle/epkixi/commit/51bec9dab4504f29db610b0047bdaed4f6d7d714
+https://github.com/rainskojc/jdrhlp/commit/86903c2ea57df844e772667cb04fadb20058cf91
+https://github.com/tullercatal/qolllh/commit/a83eafb577e889ecbbb9193e0e564d3cc08d5cb5
+https://github.com/zerian879/sfotts/commit/d08a07c38da99a2d5399f6c9d423ebd7630e1709
+https://github.com/hojimoyli/dymclx/commit/c0e924107d8ef57f191170cd63f35986d1464ad0
+https://github.com/apvishku/lhvoad/commit/c429b31f0a7f78aa013c678dee7c2b106d752832
+https://github.com/innyancesco/cgausv/commit/84534d6f882ab698ab06fba050b768ab29527e5b
+https://github.com/greensulbert/ytsolr/commit/fe238a65bf6dffd4be46496605fa9b66db602eaa
+https://github.com/tighx/dcsife/commit/fe17a9be213490b98281c3baf5afe0eac91193de
+https://github.com/scark4horen/jhimwp/commit/f9052f1326f976b3c8306eb3bf887a6074dd2835
+https://github.com/oot-f1e1094/bzobag/commit/aa5acc92f23113164dc5acabf5851beca1ca981d
+https://github.com/dan-brarilley/rzaxdc/commit/8dce146bd623b49df184bd22cafddb0be3b76ddc
+https://github.com/anagrewlogis/dffejg/commit/d744cac1b257c9ab55cb670d82e90136269b86ce
+https://github.com/kaopham/uhcbng/commit/3133fa315d806bbae84bfc0a765b489bc7f6e662
+https://github.com/lattlerjdusau/xkkdbt/commit/8c3ca12f0c93f13e9bfb569c7df600fc023b9ba3
+https://github.com/scarteriundius/iwhmdu/commit/7843c210bbdedd674d4f9cea04673b1cd13dd2cc
+https://github.com/rodisad/ercfrc/commit/8ada105c84345d54e463b956686d7d41266be16e
+https://github.com/isteft3wqnxhn/mchcam/commit/3e451687f001c5c4935bcc0627bb6347ea4213cb
+https://github.com/aktidocynescreat/khehlm/commit/9bf3b469295cbb0b830ca5c2daba4bacc9f2a619
+https://github.com/eseolniewserr/iiyfgu/commit/6e6d3d495353ac9aa3a9f636538754fd3ef813d6
+https://github.com/alxilu/vqumpa/commit/f3e99c1e3c1806948a47b3b97fbbe23979c82f63
+https://github.com/minucn160/yeadaf/commit/a1a276e308c0feedc5ed8a81b2de63c68c086232
+https://github.com/shake37otectc/hekyxz/commit/8e48008186bc2cb89fdf4a5d9c729111d7d90477
+https://github.com/3cloud57/hdjfbf/commit/4970de4187c0982459db667feaa00e6c60759991
+https://github.com/glagaroc/ymebhn/commit/0d880ff2549033182dbe7579159d31168d8c08ea
+https://github.com/sebiageow/cessxw/commit/648db610ef6e146a88a1eab3216700ebbab2b10a
+https://github.com/aarasticage/pscugd/commit/b3f5310eb3e5f3124398e59491284ba31ba5e0ec
+https://github.com/goldifiy/heynvc/commit/53b8457244fab1b0a65ecc3a51c3ff0a371886df
+https://github.com/utylan/oxpoht/commit/07156bc513b65d567e28469f8e77a2b959167df9
+https://github.com/abeddle/vyniqs/commit/bce86cce19ae8b0f4e2f2b7dfa96651152487752
+https://github.com/taphenihs/ydcyug/commit/b933fbdbc304670835f755921c6a05e76bceb1ed
+https://github.com/tramenhatwordbul/imgcgi/commit/fcc7babbd6fe52c52a562bf4d727a817058d88cc
+https://github.com/servicolvydd/oiueee/commit/a81bde45169f5cc7edfca92b2fb8a63a023d2cd4
+https://github.com/ismaclas/tvsafx/commit/6eb6626d686c2db6dd9dd0d120403dc31c734ae8
+https://github.com/mognhro/fkpfuu/commit/5cfa167b9a3631a0fee3e645560533cb776a384e
+https://github.com/damennystall92/awviup/commit/4c77f934d405beca80a16c9a4759d6077149ce34
+https://github.com/janshaniv/lvbtyn/commit/8d95f977faa4c0693654fb8a709a13d6e563d6a1
+https://github.com/syleviciocysuux/qngite/commit/984657d9670e8ef9465823a4d28844cba5923139
+https://github.com/uziye7pider/kfuunz/commit/15661c72ced8a25567f8ea4a749060c1ad36ae64
+https://github.com/jainuniur/qhpotm/commit/1e84583031541a7c1fe2e89cc56292a1e3ac5c2c
+https://github.com/centister/udiioi/commit/5c2f0ca97765c500934095adc572e715f3166c8e
+https://github.com/anira2j/cwqpbb/commit/903a3a5b6446948c351b9d952feb23c9a0563e58
+https://github.com/mkogz13/wnlyjx/commit/5a0bb30c102db2eb9f050f30b9f090c051f49aba
+https://github.com/jawabing/lhiaml/commit/42cc0552a7faaa189e104583f9f4b9fbda83237e
+https://github.com/ciderullettigo/czfipo/commit/6f15b1685104d2c5344a531af01b01a092c44104
+https://github.com/arcelotiz/tomptq/commit/39ecadcb4799ce916ed7792cf70a2f5c7173e05c
+https://github.com/pysainez/uxmvtf/commit/24f5e1c8a25ceff57dda5bd19bd0cc05a0d83874
+https://github.com/cvirozhangys/egcrit/commit/275ee23b7912a17e93a39edf5ef720c04e74168d
+https://github.com/tmurklyon/ixrafn/commit/344bc753d705b7638d17b84a3f62a6fff943fcc6
+https://github.com/ldawalhy/mexfav/commit/c69c1309184eb96cb9af41ea90b21181986467c7
+https://github.com/randangle/epkixi/commit/2b00f6c8a97dde74b3d8058ebbf04518c122e289
+https://github.com/rainskojc/jdrhlp/commit/6944f88d2cc78c2f3f134f47b267eca775e372bc
+https://github.com/lattlerjdusau/xkkdbt/commit/e7073e9847588704478555fcd6c730bb56428f4b
+https://github.com/apvishku/lhvoad/commit/7aad7ead7e5279b7490ed0f54f63585aa3c10393
+https://github.com/zerian879/sfotts/commit/5e5af9741e087a73d76446e30292a94c5d1c4a71
+https://github.com/kaopham/uhcbng/commit/d335226fd442044d5d38ca80e6915df988cb0ab7
+https://github.com/oot-f1e1094/bzobag/commit/a9daadce82b20ebe98ef9399743c0d4120770799
+https://github.com/hojimoyli/dymclx/commit/18046798dafe6ae810e0c644b528e9e580bc1668
+https://github.com/innyancesco/cgausv/commit/6f430e7c902b90a86495fcdec6b85627a1fec5b2
+https://github.com/scarteriundius/iwhmdu/commit/265ce26fdbd88ef5599feab7c7e56143c50e523a
+https://github.com/scark4horen/jhimwp/commit/9b22565e80949ee444afb789256867334b21cbe5
+https://github.com/greensulbert/ytsolr/commit/4267eeec1eab52d0461a7abd6ab5cab0e333afbc
+https://github.com/abeddle/vyniqs/commit/915f8313974f12256de5dca9eeef441646917b48
+https://github.com/eseolniewserr/iiyfgu/commit/ad1d5bf0596b0e7c0bfe650c209d14151d1bd7d2
+https://github.com/tullercatal/qolllh/commit/9520951ef3090c3e5dd2caf8b2208a21d7362e5b
+https://github.com/isteft3wqnxhn/mchcam/commit/964d59230960e3f273884ad4dbd3dc655b2c53d5
+https://github.com/alxilu/vqumpa/commit/b3d313b853553e575ee04e1a3323c7a1321b6a1e
+https://github.com/sebiageow/cessxw/commit/126366865abc848a45e02d7e5faf06b3f8a98d40
+https://github.com/aarasticage/pscugd/commit/2fbf538605db7d0d4b0b4261506c62040ad43ef2
+https://github.com/mognhro/fkpfuu/commit/2ee965599e46f0c353129cb6f6b768ec01cddc8d
+https://github.com/centister/udiioi/commit/bfdd3fa5e4eaa114145ea44d019bc783d94d8759
+https://github.com/ismaclas/tvsafx/commit/07102bc79fa17a2645811f9f7d344f7b125af57e
+https://github.com/3cloud57/hdjfbf/commit/1fb0507cf698d5c8db4e8bbf559588ae6dca121f
+https://github.com/anagrewlogis/dffejg/commit/e0a960e45bee60bee198678fd61d8e6b02c3f292
+https://github.com/taphenihs/ydcyug/commit/96c09298ab8f6036def83d39d1f5d4640ad9ebd7
+https://github.com/syleviciocysuux/qngite/commit/21177ed6a4af6aadec99467e55243eacec08df93
+https://github.com/janshaniv/lvbtyn/commit/f4f02c4c14ea14a9ff8939721655b5622204bbf5
+https://github.com/tramenhatwordbul/imgcgi/commit/c8cb8a119322df5491a988cb9dbdf9d6021e5281
+https://github.com/glagaroc/ymebhn/commit/79ce4663cc8ad639a60521ae8cd848c5fea412e9
+https://github.com/tighx/dcsife/commit/ad78294203dbb9e89015c9f10a9b233dae1e229d
+https://github.com/minucn160/yeadaf/commit/7d649a141caf25cbe006eaf090dd5dd9c7d8082c
+https://github.com/servicolvydd/oiueee/commit/a1635a2ad5e7c299be41b3bb7e83a48a6465ba8b
+https://github.com/shake37otectc/hekyxz/commit/12be330f2a632d2eda577a63b37b60c9b0d95d08
+https://github.com/aktidocynescreat/khehlm/commit/30ab011661902a448c71481aa3a536aa44956527
+https://github.com/jawabing/lhiaml/commit/8adb6dd43774f46466f9364ff11a6d42bec7bd63
+https://github.com/uziye7pider/kfuunz/commit/b05eb81ed6c14a036aa9890250547c668cdf5ffd
+https://github.com/utylan/oxpoht/commit/c66b97939cf2066641ec40bfdd0e32f3a8d35154
+https://github.com/ciderullettigo/czfipo/commit/dd59bf396d7a9370c2ecf45cf5e7aecfe7a407d9
+https://github.com/goldifiy/heynvc/commit/ffb8a7c3bb2ba256f43f6aab1ed439b76392e94e
+https://github.com/dan-brarilley/rzaxdc/commit/c15f27b425f4a296eba499d8101e64d27ee2a342
+https://github.com/arcelotiz/tomptq/commit/bd050646c6503fb597ea6caf242ca80100e00798
+https://github.com/damennystall92/awviup/commit/23e88cc6afbb466fd7b0a508b3b79eb5c1503ea4
+https://github.com/rodisad/ercfrc/commit/af079e01542de7a95ade0c41023309c82cc89a5f
+https://github.com/mkogz13/wnlyjx/commit/563c69832c2cf61da1412e8776c4914990e971f9
+https://github.com/ldawalhy/mexfav/commit/8ce292aa527230630f304406e9ebe1a9a52f16e3
+https://github.com/tmurklyon/ixrafn/commit/659f4577de5d850aec32876b11911522a399759c
+https://github.com/greensulbert/ytsolr/commit/96da52afafa445dcb86a5a340e7d08cc9cd36b94
+https://github.com/cvirozhangys/egcrit/commit/11c9a5bd9b6b867f534ef6cdab0ba5448262afe4
+https://github.com/pysainez/uxmvtf/commit/fccefe760ee0d2f2a02d7feb93e01b82cb903973
+https://github.com/zerian879/sfotts/commit/b4869285ade7e96008d7c85b2c5b6e63dd307161
+https://github.com/innyancesco/cgausv/commit/4c94bb3d33f180e1abe9b979a06216be6812b16b
+https://github.com/randangle/epkixi/commit/7e9337ff13146bf9e5d44a40bff65e6b818d57b0
+https://github.com/abeddle/vyniqs/commit/379c18847bfd7eb9327cd93a682a833e8f100907
+https://github.com/eseolniewserr/iiyfgu/commit/1bc573537128fefc10cc36f7767173f4236f04ce
+https://github.com/rainskojc/jdrhlp/commit/54e84d93dc915db1d2a9ddadf1c269765327e856
+https://github.com/apvishku/lhvoad/commit/ed180fba931a6502097926d7a006529771655e3e
+https://github.com/oot-f1e1094/bzobag/commit/c1968ae0a7c18fad1d96d32500fe2f1bd509faa7
+https://github.com/anira2j/cwqpbb/commit/f300cb8be0386b273a936a5b1ff818686a34416a
+https://github.com/jainuniur/qhpotm/commit/e54b4b876524638e6ce4fd9ddbc28241166cd8ec
+https://github.com/lattlerjdusau/xkkdbt/commit/82f4c2029b912f56eb3ba6d4f3da5a1e30307a08
+https://github.com/alxilu/vqumpa/commit/bb2eed3e2173ca56bb35b1d045ff577d4ab486da
+https://github.com/isteft3wqnxhn/mchcam/commit/3be8e3db0d25fd8f632dba8c565eee46afb854fa
+https://github.com/mognhro/fkpfuu/commit/69300dd6c8483f4da0b71fbeaa301f152df991ac
+https://github.com/hojimoyli/dymclx/commit/9df4297bda21ad3b53924539bfdb2c46f609e772
+https://github.com/aarasticage/pscugd/commit/11d9eec6fb65fcfceb7dbf07f2c23670db99fac1
+https://github.com/scarteriundius/iwhmdu/commit/fdd985e19f81d6e41adc96cc8d398711f7acf808
+https://github.com/ismaclas/tvsafx/commit/f4f91b8ed9a0390731a252357640c93b027b89b4
+https://github.com/kaopham/uhcbng/commit/6ee404100fb79e63676a0ee3f3f76f408312811f
+https://github.com/tullercatal/qolllh/commit/2f5b1859a64de1afa1204ee3ef44513b0cbd4f52
+https://github.com/tramenhatwordbul/imgcgi/commit/421a1bdb915e04e6d27c883a4492ee997b1d35c0
+https://github.com/shake37otectc/hekyxz/commit/15e9e0b7a1aa41cc6c95288e9ac1ce484abd56c9
+https://github.com/scark4horen/jhimwp/commit/07a1e843719dc16bb18619cf9c6b6f1f02b62772
+https://github.com/sebiageow/cessxw/commit/f327b306f61398a144e90c2d45b58cb39bd9cd53
+https://github.com/centister/udiioi/commit/89953883f8d89d26454084f6181b774b2a7c38ff
+https://github.com/minucn160/yeadaf/commit/d1be30107c60c205bdfd57cfacccc12b10fc467b
+https://github.com/anagrewlogis/dffejg/commit/695175b45bf262f8c34c2b2ffc56d85424506636
+https://github.com/3cloud57/hdjfbf/commit/192c198093abd9358f49251534a9c6e78975a001
+https://github.com/glagaroc/ymebhn/commit/a9540a6794cf3ef82ef46faa8d6c9c74a53ab7a0
+https://github.com/aktidocynescreat/khehlm/commit/8e1b791246887ee06076c5901ee91bf386b52965
+https://github.com/uziye7pider/kfuunz/commit/2bae506f83a03d60495ebd5512a916f9985e6594
+https://github.com/tighx/dcsife/commit/217020240fdab54f3e023bd1748c77af452a10f6
+https://github.com/servicolvydd/oiueee/commit/611ca786f81ae927b2c45a19060f8c46bbe9caea
+https://github.com/rodisad/ercfrc/commit/f045c03a80fac634098c4b137807552ef5d29229
+https://github.com/jawabing/lhiaml/commit/d5d8235d5a8d6e66bd84bd256f6c24cfecc07bdd
+https://github.com/utylan/oxpoht/commit/2f500f9fbcacfdf3a0f379acb2fdb89c14fcc9ec
+https://github.com/taphenihs/ydcyug/commit/24fa7975def50464623fd7b95f1bf7fe23e33de3
+https://github.com/arcelotiz/tomptq/commit/acc1fe6021a140ad6409b47556553faffb96ed86
+https://github.com/damennystall92/awviup/commit/e3b6e4aa337a61bcfc99edb24cc3ab603e68cb87
+https://github.com/janshaniv/lvbtyn/commit/f54559e7e6b411de3cc8cb516a28f81ea689dda6
+https://github.com/syleviciocysuux/qngite/commit/58a01e36bfe8b591ce92c3157962ad0f51f3c3de
+https://github.com/cvirozhangys/egcrit/commit/7bb1b2fcf9823e2aff04a578d365cfa3d30f07d4
+https://github.com/tmurklyon/ixrafn/commit/f81abe833fd99e2352db748e06d1cdc6091eacb5
+https://github.com/zerian879/sfotts/commit/9d99d9250725730c48c7dbb2a91242b013202849
+https://github.com/dan-brarilley/rzaxdc/commit/6759b560ce2c8870b4d6824cb068407cfe2fed89
+https://github.com/goldifiy/heynvc/commit/1d16790028140ed40a519a68f3727d7e9bddad22
+https://github.com/pysainez/uxmvtf/commit/00283b07602bc7d03fc1760663e321fbae42523a
+https://github.com/greensulbert/ytsolr/commit/6456d848bfc962e15be98234fad20afc8927d6f5
+https://github.com/ciderullettigo/czfipo/commit/0b986b838692f4f6bb5a4bd2c3d866fcfb64c7ac
+https://github.com/randangle/epkixi/commit/7edd498ca2307bbd9455dc71a3bae3388fe7183e
+https://github.com/ldawalhy/mexfav/commit/6a336a439e1d565706af2e0f817aa531d0a6d1ce
+https://github.com/mkogz13/wnlyjx/commit/0a82998d69974ecc3cdc27a8db43717430bf42c3
+https://github.com/innyancesco/cgausv/commit/55dd5bf2ae516297634392a72ee4fd4935b13109
+https://github.com/oot-f1e1094/bzobag/commit/4558818e4fc95c571a740d86bf12770b984db5d2
+https://github.com/eseolniewserr/iiyfgu/commit/fb851a004d3fdcb89fc6749361375c02c643c81b
+https://github.com/isteft3wqnxhn/mchcam/commit/f36ccd1fbf212a84607706be15fc1a1e2604d035
+https://github.com/hojimoyli/dymclx/commit/f4a59653cab69d8e8be3cf460d958a2e3ebe55ad
+https://github.com/shake37otectc/hekyxz/commit/ea3abf0eb8f688142e44bd94ba4f0a6d3e56f5c9
+https://github.com/jainuniur/qhpotm/commit/cddac810d4fa141379493b76c6454c0117d7ed3c
+https://github.com/kaopham/uhcbng/commit/3bcaebf9b8e3e8f06913947462e4c8a7b465715b
+https://github.com/scarteriundius/iwhmdu/commit/9a236c59ef2054f975ef86abbdff91364553ded9
+https://github.com/minucn160/yeadaf/commit/e1c3c3947c5b26fed2a6a3a4694e5ebc846515df
+https://github.com/alxilu/vqumpa/commit/c6053b0c443b97a8877993ebd62e260340382385
+https://github.com/apvishku/lhvoad/commit/c11261102244712a35c5097833354eb72f0f1ad3
+https://github.com/lattlerjdusau/xkkdbt/commit/41eaf4a4e0fa1dcf0741897484e8ed69d8e951bb
+https://github.com/ismaclas/tvsafx/commit/6e58dbe0c293517c91ee13f962d62b34261384fa
+https://github.com/sebiageow/cessxw/commit/aeeb4a850494db9c13c1760933f319e9588e5e8d
+https://github.com/mognhro/fkpfuu/commit/d6edec771ad04edccc96b92ef4e8cd7dcdae5ed7
+https://github.com/tullercatal/qolllh/commit/35b1132b9478244b1eb5f157c2ceeae0534df9ef
+https://github.com/uziye7pider/kfuunz/commit/d3cde2504905b8fd6315c44b5cfcaa232c9f82a9
+https://github.com/rainskojc/jdrhlp/commit/08c12b5b56477b7da6f3fac760b9bb0260bbab01
+https://github.com/tighx/dcsife/commit/1343d5fa9f342a8c5c0422d12733369fbd8a0de0
+https://github.com/aktidocynescreat/khehlm/commit/fe0f6cc290422537542437cf0ec4d0a0eb21e30a
+https://github.com/centister/udiioi/commit/31d372ef0c56e647fe8de24f1a497bd3eeec2dca
+https://github.com/rodisad/ercfrc/commit/1d1917113f99f840898e9037ffc0c23d785e16cc
+https://github.com/abeddle/vyniqs/commit/6fffd8ff4b2563b12ff6d52a286e0b9cde024faa
+https://github.com/pysainez/uxmvtf/commit/0702f423e9405ce7699b59c1e1ae0a69e7d4d064
+https://github.com/tramenhatwordbul/imgcgi/commit/7ac6755891836101913a1d2b9348bae4397140a4
+https://github.com/ldawalhy/mexfav/commit/b4b4b1b375d5cd6f8db0300099eadb5017df19d6
+https://github.com/ciderullettigo/czfipo/commit/21e525a02797146cbdfd69f3df6a1356119a4005
+https://github.com/anira2j/cwqpbb/commit/acdb91ffc2ee496c85eca6d6677aaaf01e40fab0
+https://github.com/anagrewlogis/dffejg/commit/04029436512bfb5e368a2b7c8a8ed13cd0784671
+https://github.com/utylan/oxpoht/commit/6538b4c68bd8f58ff93382a777481b13e023ebda
+https://github.com/arcelotiz/tomptq/commit/45736f3d1c9ce93228cbbb45a675a2e95c97a1f0
+https://github.com/syleviciocysuux/qngite/commit/75a86e965d2159969741d0e827ad7355aa2d9aed
+https://github.com/cvirozhangys/egcrit/commit/7a78943ac99c80db573e4e52f4a7d7edfad0a06a
+https://github.com/taphenihs/ydcyug/commit/c63071bc33f5a8c3a4184a446f88b74c39ef8956
+https://github.com/jawabing/lhiaml/commit/26403d303b22242a0f05d09ca4c523e41ef6a6b3
+https://github.com/mkogz13/wnlyjx/commit/ba0a0a600a686eef9ffd35301c5d1bf37eabe4b1
+https://github.com/isteft3wqnxhn/mchcam/commit/9cf79cda7120a4733f16521b5b43b6e9eff75792
+https://github.com/zerian879/sfotts/commit/9d11c8a89979ab83e022dbc16b60509a66deab49
+https://github.com/3cloud57/hdjfbf/commit/6b5bf844b5e9f2bdbb475ab6bd8a1e995abfea4c
+https://github.com/scark4horen/jhimwp/commit/99a0889a375b821bb77d6a41c5352275c13265f7
+https://github.com/kaopham/uhcbng/commit/724f887a98fa9774b3c86fba484ce89c842bc485
+https://github.com/hojimoyli/dymclx/commit/415dcff759b2441d7975b9c00361cba2224b6de9
+https://github.com/oot-f1e1094/bzobag/commit/2042e0c95c236489df05403014eeda642d20b2c0
+https://github.com/eseolniewserr/iiyfgu/commit/beadaee9c432e9c9fe621b5e6b3f13ab386e97ec
+https://github.com/scarteriundius/iwhmdu/commit/6ab812fa68b957b9ad6036faa2b0a78894966f27
+https://github.com/jainuniur/qhpotm/commit/1690fd3038a40d3c75a4aba12d0289ac72b69f17
+https://github.com/aarasticage/pscugd/commit/7beb477becf3722d8aefcbfafcf8e17f5e0f0f6e
+https://github.com/dan-brarilley/rzaxdc/commit/61473a882c82b7078f6cd43195f3bb7643074ce2
+https://github.com/goldifiy/heynvc/commit/afc3e0592c5caeaf5adc150d4975ad404b6f6d27
+https://github.com/randangle/epkixi/commit/156f3f441e8324923ccc19c09a0f102cf8cf473f
+https://github.com/apvishku/lhvoad/commit/03d7f551f6b76388958ec94eede41d0691315d7d
+https://github.com/greensulbert/ytsolr/commit/7fa42e515812d0ff43d436277ec6e7a4e6224316
+https://github.com/servicolvydd/oiueee/commit/fec3006750a4e4f478718d9f196fef48e6bbb626
+https://github.com/damennystall92/awviup/commit/edf31d5ed07ecce8a17b46d6900f0bbd78b3f7ef
+https://github.com/alxilu/vqumpa/commit/6f8f4b9935780d861ca00a3bd775e5a5e1131e63
+https://github.com/mognhro/fkpfuu/commit/5d9a84254847fba89528d7e6681f2e447e332e1b
+https://github.com/ismaclas/tvsafx/commit/70a8291a63b5d1e7e0311d5a3b96d7a8212c9e1f
+https://github.com/abeddle/vyniqs/commit/49b76b4286e687341b2595c7cb75fd34991d6592
+https://github.com/lattlerjdusau/xkkdbt/commit/a70151315c65b8437d078adf7b3c67f8064fabb2
+https://github.com/shake37otectc/hekyxz/commit/5b13d7871012b139a69e80359ae878c6d50901bd
+https://github.com/janshaniv/lvbtyn/commit/343abfc727a1b0c1fee4b603c14774a6951e90aa
+https://github.com/rodisad/ercfrc/commit/61db886ba1413e8c32d4979918bf09cf0432bb18
+https://github.com/aktidocynescreat/khehlm/commit/3a0f1895ee6ca3469411d607938bb8e5050a4b6b
+https://github.com/tighx/dcsife/commit/a3c96e7b9db32465d6109f4f85d8f4f28373e521
+https://github.com/glagaroc/ymebhn/commit/4229a9339d431edb221fcc78a4e51c975c87dc3b
+https://github.com/tmurklyon/ixrafn/commit/aa62f6362ede729b0db43852cc9de0f392e5fd15
+https://github.com/pysainez/uxmvtf/commit/014f8416a8a6b24af676c4411746a132fed5eed5
+https://github.com/ldawalhy/mexfav/commit/b7acaedfa159f024f826564b98484747aedf3bb3
+https://github.com/uziye7pider/kfuunz/commit/c8d261c9343b6c4c82a82d012c105de6c5ad10b9
+https://github.com/tramenhatwordbul/imgcgi/commit/cbd3989c0ef2985f9cccabd85d3599087ff3f512
+https://github.com/jawabing/lhiaml/commit/0c12d519e6c5ee046234f39bc5700559463f5e59
+https://github.com/tullercatal/qolllh/commit/42f1bdcccc07a03300701079b1cec2b4cbedcb92
+https://github.com/ciderullettigo/czfipo/commit/2106d4574c361a390d5c674931f8369cdcbeb267
+https://github.com/isteft3wqnxhn/mchcam/commit/3ce4111495ea0e103d55794a374f02651a871c59
+https://github.com/anira2j/cwqpbb/commit/0028e38f575d67c4d917d5d7783a42dd1589ffa4
+https://github.com/rainskojc/jdrhlp/commit/6c020f063fe24e6ac66ceaae164bfef70b7b1256
+https://github.com/centister/udiioi/commit/5f57660797a1da91856a90cf399cf0d44538b8c7
+https://github.com/kaopham/uhcbng/commit/42fafb62aff614960ad67201dc906d97de28de63
+https://github.com/zerian879/sfotts/commit/2328eb53ad57eea82a5e5ae1415bb150031cd874
+https://github.com/taphenihs/ydcyug/commit/bd2ac9afab14f38d1eca87c3477942231249ce81
+https://github.com/mkogz13/wnlyjx/commit/a56f8305d2dff9b33bb91a90d4530b78c5414da5
+https://github.com/scark4horen/jhimwp/commit/55426c71e975967803b207de3fd92ab1d06948a7
+https://github.com/minucn160/yeadaf/commit/239af0fd3567c17b421dee43709e7fab4e00c466
+https://github.com/cvirozhangys/egcrit/commit/996fb271a749df384833b5fe7a5e5a59a700df2e
+https://github.com/servicolvydd/oiueee/commit/2074e684667c8e26548800cd039462c7a9a13842
+https://github.com/3cloud57/hdjfbf/commit/3bc97d47ebf86d93315020dec9fb8461db128c25
+https://github.com/scarteriundius/iwhmdu/commit/298b2c931f719ed14eb659cd6eea9524f9f57deb
+https://github.com/anagrewlogis/dffejg/commit/06e1924a37dc2b58d0ba5571a51ac058cd561962
+https://github.com/innyancesco/cgausv/commit/c456df50c7f7e0186f0a9dc2863cea98cab98162
+https://github.com/eseolniewserr/iiyfgu/commit/3b76da681c7e05c7eadb8abbc37224ad8522632e
+https://github.com/utylan/oxpoht/commit/e8710e8f45e24c0197ed6857a7873cd59b9d1d54
+https://github.com/jainuniur/qhpotm/commit/7cc2b95b1069d79b6b9e10395b7c0fc09ff91783
+https://github.com/sebiageow/cessxw/commit/67fa1d1248e1492cda5ca401efec59bf9cecc04b
+https://github.com/aarasticage/pscugd/commit/cd0036f0ac082c19358e587cd4975a752dbadf78
+https://github.com/hojimoyli/dymclx/commit/04c894b57619f284261e7e6bca79fd1fc5805816
+https://github.com/oot-f1e1094/bzobag/commit/2bb2a4ea218e6f37ac9718f26b5b13379763be77
+https://github.com/randangle/epkixi/commit/cb0265109665e245a9b9d1706bca9a0466b8bb27
+https://github.com/apvishku/lhvoad/commit/326ae1c6264c4f77d431621f94d4e3d9d75de84f
+https://github.com/shake37otectc/hekyxz/commit/3915a5709d869eb4c1e734b361989b3dcd8ec69d
+https://github.com/arcelotiz/tomptq/commit/bb22e7febea4a4e6eaff89c75adff52e579f82e4
+https://github.com/mognhro/fkpfuu/commit/62b9c0655f0c551b153ea807c30cafe176a3eb8a
+https://github.com/damennystall92/awviup/commit/4d5e347bd756685582b54fa10c2a63cffa21688b
+https://github.com/goldifiy/heynvc/commit/b2a3a841ee76e096e70aa565c40f203bcadd7c63
+https://github.com/syleviciocysuux/qngite/commit/8b9c84176f1732af30473bc13884a45ec6e0b4f1
+https://github.com/janshaniv/lvbtyn/commit/91dc0a312dad7af32ee36b84bd7f60d15bf442ce
+https://github.com/dan-brarilley/rzaxdc/commit/73deacf1f52b1889cee7c7c54a997f2942652d3c
+https://github.com/uziye7pider/kfuunz/commit/82db366db786efe768e65eebe56cd6cd82618e32
+https://github.com/greensulbert/ytsolr/commit/3a62d7bca5e50732750639c493ea99b687cac904
+https://github.com/alxilu/vqumpa/commit/8300416acb1ee4d2977e4c5be8a3ec0e98c380d6
+https://github.com/aktidocynescreat/khehlm/commit/5f3ba92c6834d1b165f2c58b628d38a8f23349c0
+https://github.com/ismaclas/tvsafx/commit/114ef07fbe81a16e444af9f9c279096c2dc36cbe
+https://github.com/tramenhatwordbul/imgcgi/commit/71afaf8e6f28a97011b49bdc6932ec20651d744b
+https://github.com/pysainez/uxmvtf/commit/d2fa1c539facce5383295ba8c2d9788cc37d3e1e
+https://github.com/abeddle/vyniqs/commit/8802d8761af50930ffc8fa78cafee6bedf7b3edb
+https://github.com/tmurklyon/ixrafn/commit/1224dc0f18a0b1df1f616571531ed1d0d1625d25
+https://github.com/lattlerjdusau/xkkdbt/commit/9f51d4ac9b1daf3b5de5f950c2fd11df2ab333d9
+https://github.com/jawabing/lhiaml/commit/57aa35a3a0db9c4ae4864f5b53013a77226cbcfb
+https://github.com/tighx/dcsife/commit/29cc8587c5610c7ea1ed227759100526123e2a81
+https://github.com/zerian879/sfotts/commit/2e8dd8c5dd9eb18bf4a511f56e5162043ea1b36a
+https://github.com/tullercatal/qolllh/commit/6c9dac7d307726b0c2ddd48a1650cbd3e05c08fe
+https://github.com/scark4horen/jhimwp/commit/6ea9f834471826cfb3e3c6e679f970cb6ffb80a3
+https://github.com/glagaroc/ymebhn/commit/28d8ffb41a1ff2accd257341b84cfab0ed1558ce
+https://github.com/rodisad/ercfrc/commit/b434a4a5d5e1b33a4a4c767956b7770aaf536fb7
+https://github.com/centister/udiioi/commit/022f9319da86a082421d0d30716eb0970223560f
+https://github.com/isteft3wqnxhn/mchcam/commit/a239e87e60bcd2ef0a25d4f9f358499134278a27
+https://github.com/mkogz13/wnlyjx/commit/efc8d9c8f025b8c89a08e3f1a53a38263599de3c
+https://github.com/ldawalhy/mexfav/commit/17d1444a59ea9265c385552ee59ae014dcbc5619
+https://github.com/anira2j/cwqpbb/commit/1da2bcb1f7a3e069525bcec4176e5fda8a2733f4
+https://github.com/eseolniewserr/iiyfgu/commit/8aa9ed7feedea7ab0bf189865f7e9033f6dd8b34
+https://github.com/rainskojc/jdrhlp/commit/79c2096338d2f7610233834c606fdc6052d1622a
+https://github.com/minucn160/yeadaf/commit/72a4e6cc43e1cd5b720d82799c76919850bbaaf3
+https://github.com/kaopham/uhcbng/commit/547674643db710c6cb06e159a4dafe08909471fb
+https://github.com/servicolvydd/oiueee/commit/d0a5e4d6f0f476655703c8dd269fb60bec155a32
+https://github.com/apvishku/lhvoad/commit/8fdc2151b27ea4c1c570c8e22f3968eb8a1cc6a5
+https://github.com/utylan/oxpoht/commit/ca530a8c96301b38f52d31f7916dd3673b7f45d1
+https://github.com/arcelotiz/tomptq/commit/e2eae183c060e91692c003dec8f6ac7efb5f7c13
+https://github.com/damennystall92/awviup/commit/9b07b0c7fb1991431fdbe194ae41a61042b71c5a
+https://github.com/ciderullettigo/czfipo/commit/e6b8ffd5a8bd3029b6583765e10f9e05cfb74046
+https://github.com/goldifiy/heynvc/commit/0d7d8da17c89595bf25f0d7771806f04a492e7e2
+https://github.com/shake37otectc/hekyxz/commit/a3e248a5732f99b649245f1ddaf6e4c33f436937
+https://github.com/anagrewlogis/dffejg/commit/086b7bd33af84a08f9cd36cc9f0f1b6a68d3ae6c
+https://github.com/oot-f1e1094/bzobag/commit/ee484a31d00e3f166a9407ac50e10d6ee5f606b1
+https://github.com/janshaniv/lvbtyn/commit/717dba4f74d4507d0c6c3f91e8686e2a372fee48
+https://github.com/cvirozhangys/egcrit/commit/fb01a52b5b04fbd7c31cd2a1a806d99131a8ebae
+https://github.com/innyancesco/cgausv/commit/efa08cafcfd9bacc9bf9365185c7723762137eb0
+https://github.com/3cloud57/hdjfbf/commit/c191a56330d2d663d96540e184b3c289cb4aec19
+https://github.com/mognhro/fkpfuu/commit/f7b75d0d66b668a0f3ebc7cc8730821ef2e22a17
+https://github.com/alxilu/vqumpa/commit/d88c4767432fe75148ce309892ac0a8153b063c5
+https://github.com/pysainez/uxmvtf/commit/114947c1dd982dc2533c2349c435fb6dfb47d41d
+https://github.com/scarteriundius/iwhmdu/commit/533dca0ba2a4f711bed1ed16d07394000d97d7d0
+https://github.com/dan-brarilley/rzaxdc/commit/14f2e7d6d7f1d93d404c1a1dace5db5d6c816778
+https://github.com/abeddle/vyniqs/commit/7e9c6543d176f74e446c382655576cd8d2850319
+https://github.com/hojimoyli/dymclx/commit/9c9a8b699dda192539d5d7487eba9e9f6d3c593f
+https://github.com/tramenhatwordbul/imgcgi/commit/f7c5b158b276c072ef42ebb7cf67dffeb41b78b4
+https://github.com/jainuniur/qhpotm/commit/b5ebb0577dd766d1d11b3b252b03201787fb2a5c
+https://github.com/mkogz13/wnlyjx/commit/0b24684ee1fb6b9a5b59709dc42821ef360a46be
+https://github.com/tmurklyon/ixrafn/commit/adc3c46be9142804c3b5081b51e44da5078981c6
+https://github.com/jawabing/lhiaml/commit/dc6eff6be8799e8dd2a2127bdbab5d7e64261b8e
+https://github.com/scark4horen/jhimwp/commit/eb004f9820e602c92ef8fa2b648a15018baabaf6
+https://github.com/syleviciocysuux/qngite/commit/624c78006d733556d85ca6478053b77c00e6d11e
+https://github.com/sebiageow/cessxw/commit/e6f381fbf848b3ba9e5cf4c6a2e935b602173d35
+https://github.com/eseolniewserr/iiyfgu/commit/0a43889b3628a5641ae4242b6793f7af447bd95b
+https://github.com/ismaclas/tvsafx/commit/f21fe90d57bccb951bdb421265125fcc03d4467e
+https://github.com/uziye7pider/kfuunz/commit/1873dff4797470d9ca721e5a7607bd8111878082
+https://github.com/tighx/dcsife/commit/14396b7a591b23293740fb8dbc89994d629ad8f5
+https://github.com/aarasticage/pscugd/commit/734d0956e65a9d2fb3ee052633a1e9896cea5c73
+https://github.com/taphenihs/ydcyug/commit/d276698f165984022c01b442b5b6cff63adef231
+https://github.com/rodisad/ercfrc/commit/f11a0b2e476d4488de154eebb31fd1a6f66bcf81
+https://github.com/lattlerjdusau/xkkdbt/commit/1d159e9f7199c75f017e8163d64563aa811b071e
+https://github.com/randangle/epkixi/commit/e9ed03a1376cb20bc6d502533045e0cd2c0474ee
+https://github.com/rainskojc/jdrhlp/commit/782171bb5a6b5f70d623935194fd86d387f93a34
+https://github.com/tullercatal/qolllh/commit/ff6c601da0a90b4725a7b883aaceec2964dea8d6
+https://github.com/centister/udiioi/commit/606be571a67d5875e799d5927a6324e2fa724c3c
+https://github.com/arcelotiz/tomptq/commit/4dafad432874ea6293d291338aaceef6e1970e1b
+https://github.com/glagaroc/ymebhn/commit/28a8531b3539acb13a2c5ff866aa45a3debd8949
+https://github.com/minucn160/yeadaf/commit/3b0e3595e84cbaa53553cfafe6dfd3a164c50077
+https://github.com/anira2j/cwqpbb/commit/abf5f237932e2f928b176256a791441a4cf3c6b4
+https://github.com/servicolvydd/oiueee/commit/4bc35db5262bfe74d0ceaa316c46a26f8f153d92
+https://github.com/ldawalhy/mexfav/commit/325580548001b7f13bc1e14ef63f590b1abb10d3
+https://github.com/mognhro/fkpfuu/commit/9edb62752d2d166791b3f6f6c2fe6fc80183bd09
+https://github.com/innyancesco/cgausv/commit/30f6b9a69d76a88fc486efbe4c882bf0639c01d0
+https://github.com/scarteriundius/iwhmdu/commit/88cbdf48279851acfdaca48c00cebb72fbcf7730
+https://github.com/3cloud57/hdjfbf/commit/9a6ee07ee11f2cdd2f83ff78f4b8d8193ef8d6b5
+https://github.com/apvishku/lhvoad/commit/a7acdaa0007a95445b3a49505602025a6466e600
+https://github.com/utylan/oxpoht/commit/1843257e7bbcaf1960e561b107fc1e6ef2834d24
+https://github.com/kaopham/uhcbng/commit/da12796bf11cdf0e1bdd0c2dd3c9fba955ae7bbb
+https://github.com/greensulbert/ytsolr/commit/2cc4cebb070fe0a1a7023a227f0149fe25e0a84d
+https://github.com/ciderullettigo/czfipo/commit/90c1f85b647ea1ef80c96be7237c041b1949bc1d
+https://github.com/oot-f1e1094/bzobag/commit/f40980c2c8df4f52157576089316240fbf295209
+https://github.com/aktidocynescreat/khehlm/commit/9e01cec293f9c11d1447734aa99a741cb08b5f62
+https://github.com/isteft3wqnxhn/mchcam/commit/3e647107b49ffb8eb192e144edfd2bb235914a5c
+https://github.com/alxilu/vqumpa/commit/cb151ca11d2d26be7e026bbea14ffe7efa74fff5
+https://github.com/janshaniv/lvbtyn/commit/6cea1e1437644a58adf573e9a75bcef97ad14a81
+https://github.com/abeddle/vyniqs/commit/535361c909fface566c4fde4a4333bfac17c39b6
+https://github.com/anagrewlogis/dffejg/commit/3ae3e06a3fd45e943bad2456af2275e05c1f7ace
+https://github.com/sebiageow/cessxw/commit/b3cd0cb4d133be0e6c0bec4943fb73df17bf49a3
+https://github.com/zerian879/sfotts/commit/99b23c69c32e6a76318ed78ba696860299402d49
+https://github.com/scark4horen/jhimwp/commit/559596873df285e5a60b5ce7b7f9d2a3aee2cbc6
+https://github.com/jawabing/lhiaml/commit/2d164dfe83821979a74c5a673b038eb415b46028
+https://github.com/shake37otectc/hekyxz/commit/940ed2d80fe8883d3cc5e00b209c07c3f66dc2cd
+https://github.com/dan-brarilley/rzaxdc/commit/3cebf9f8edcfd86e7d0802bf8ef90ca7f66701af
+https://github.com/pysainez/uxmvtf/commit/981a31493b0616aa037b3641fdd4e8651be2967b
+https://github.com/mkogz13/wnlyjx/commit/08607bf4ba710ad6ecb66edd43b04d9e3db3a03c
+https://github.com/rodisad/ercfrc/commit/66970bda7b6d09b87b7e80aed1de42ce9391b5e8
+https://github.com/damennystall92/awviup/commit/ca7cfb21ee8d42a65d3e608c3a72bd460fc0161b
+https://github.com/syleviciocysuux/qngite/commit/e82c3b2e58f3b82ce0175a0bb9bf8e51f718113e
+https://github.com/tighx/dcsife/commit/2ac069433fef4d14315eb4195aec57139c608741
+https://github.com/goldifiy/heynvc/commit/07892c0602bc56c65962d9d9c4855a4a3d61162d
+https://github.com/uziye7pider/kfuunz/commit/578f058a5f674018afcf18dd6d7892c3f77b8313
+https://github.com/ismaclas/tvsafx/commit/3459e9a8548af589a363c6c74e092596f78eaa0d
+https://github.com/rainskojc/jdrhlp/commit/90f2120976671153a08ea40c16df8ac0801eb0bf
+https://github.com/hojimoyli/dymclx/commit/be7a57d463179437edbf748ff45c40d8a6922de9
+https://github.com/tramenhatwordbul/imgcgi/commit/ec29906a14c4268cc99c5682cb3fdf99de1a3ca1
+https://github.com/eseolniewserr/iiyfgu/commit/4500d218422452d5bcbb3bb2b57bc13650769e6d
+https://github.com/anira2j/cwqpbb/commit/7f69098c21ee0234c839acbefa6b5742ab0b3ad7
